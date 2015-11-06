@@ -1,3 +1,3 @@
 prognosticators results processions
 
-November 6 2015
+November  6 2015
